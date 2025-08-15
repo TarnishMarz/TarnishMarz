@@ -51,6 +51,9 @@ Fan since first game ! Who remembers [FNAF not scary](https://youtu.be/20musPh8l
 <h6 align="center">➠ Stranger Things !
 <h6 align="center">➠ Halo RvB <3
 <h6 align="center">➠ Horror movie fans ! 
+<h6 align="center">➠ Godzilla/Kaiju
+
+Absolutely love [Shin Godzilla](https://youtu.be/UPuWdr6lyfU?si=BVB3EXdnN38DFza5) !
 
 <h6 align="center">. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁.𖥔 ݁ ˖ ᯓ★
 
