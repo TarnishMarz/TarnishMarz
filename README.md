@@ -6,7 +6,7 @@
 
 <h5 align="center">Hallo I am Marz or Tar !  
 <h6 align="center">‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
-<h6 align="center">This Github is only connected to some selected ponies ! 
+<h6 align="center">Slowly converting to having my Github linked instead of my patreon ! 
 <h6 align="center">ɪ ʜᴀᴠᴇ ᴀᴅᴅ & ᴏꜱᴅᴅ so be mindful if I am a bit slow at interacting. 
 <h5 align="center">Please ᴅᴏɴ'ᴛ ᴄᴏᴘʏ My Ponies !
 <h6 align="center">. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁.𖥔 ݁ ˖ ᯓ★
