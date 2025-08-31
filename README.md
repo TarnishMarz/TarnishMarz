@@ -64,7 +64,7 @@ Absolutely love [Shin Godzilla](https://youtu.be/UPuWdr6lyfU?si=BVB3EXdnN38DFza5
 <h6 align="center">This profile is still a wip. Planning to add more soon !
 <h6 align="center">While your here check my strawpage and maybe leave a drawing while your at it !  
 
-[StrawPage](https://pablo4u.straw.page) | [Patreon](https://www.patreon.com/c/tarnishmarz/about)
+[StrawPage](https://pablo4u.straw.page) | [Current Fronter](https://pluralkit.xyz/f/azvjwp)
 <!--
 **TarnishMarz/TarnishMarz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
