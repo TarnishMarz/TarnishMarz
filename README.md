@@ -55,6 +55,8 @@ Fan since first game ! Who remembers [FNAF not scary](https://youtu.be/20musPh8l
 
 Absolutely love [Shin Godzilla](https://youtu.be/UPuWdr6lyfU?si=BVB3EXdnN38DFza5) !
 
+<h6 align="center">➠ Resident Evil
+
 <h6 align="center">. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁.𖥔 ݁ ˖ ᯓ★
 
 <p align="center">
