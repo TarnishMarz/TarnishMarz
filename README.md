@@ -5,11 +5,14 @@
 </p>
 
 <h5 align="center">Hallo I am Marz or Tar !  
+
+  [StrawPage](https://tarnishmarz.straw.page) | [Current Fronter](https://pluralkit.xyz/f/azvjwp)
 <h6 align="center">‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
 <h6 align="center">Slowly converting to having my Github linked instead of my patreon ! 
-<h6 align="center">ɪ ʜᴀᴠᴇ ᴀᴅᴅ & ᴏꜱᴅᴅ so be mindful if I am a bit slow at interacting. 
+<h6 align="center">I have a sys known as the paranormal System, some alters have their own githubs so keep in mind ! :)
+<h6 align="center">ɪ ʜᴀᴠᴇ ᴀᴅᴅ & ᴏꜱᴅᴅ so be mindful if I am a bit slow at interacting, I get heavily distracted.
 <h6 align="center">I can be quite a yapper, but I'm usually very quiet to people I don't know.
-<h6 align="center">I tend to not interact first. Please don't be afraid to talk to me.
+<h6 align="center">I tend to not interact first. Please don't be afraid to talk to me. Don't cover my ponies, friends are perfectly fine doing that.
 <h5 align="center">Please ᴅᴏɴ'ᴛ ᴄᴏᴘʏ My Ponies !
 <h5 align="center">ᴅᴏ ɴᴏᴛ ᴀꜱꜱᴏᴄɪᴀᴛᴇ ᴍᴇ ᴡɪᴛʜ ᴀɴʏ ᴏꜰ ᴍʏ ꜰʀɪᴇɴᴅꜱ ᴀᴄᴛɪᴏɴꜱ ! ᴛʜᴀᴛꜱ ᴛʜᴇɪʀ ᴏᴡɴ ᴀᴄᴛɪᴏɴꜱ ᴀɴᴅ ᴄʜᴏɪᴄᴇꜱ, ɪ ᴅᴏɴ'ᴛ ᴀʟᴡᴀʏꜱ ᴀɢʀᴇᴇ ᴡɪᴛʜ ᴛʜᴇᴍ !
 <h6 align="center">. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁.𖥔 ݁ ˖ ᯓ★
@@ -64,9 +67,7 @@ Absolutely love [Shin Godzilla](https://youtu.be/UPuWdr6lyfU?si=BVB3EXdnN38DFza5
 </p>
   
 <h6 align="center">This profile is still a wip. Planning to add more soon !
-<h6 align="center">While your here check my strawpage and maybe leave a drawing while your at it !  
 
-[StrawPage](https://tarnishmarz.straw.page) | [Current Fronter](https://pluralkit.xyz/f/azvjwp)
 <!--
 **TarnishMarz/TarnishMarz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
