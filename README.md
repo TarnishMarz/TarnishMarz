@@ -4,18 +4,26 @@
   <img src="https://github.com/user-attachments/assets/22fa1869-0b3b-4803-8562-7a129f0570f0" />
 </p>
 
+
 <h5 align="center">Hallo I am Marz or Tar !  
 
   [StrawPage](https://tarnishmarz.straw.page) | [Current Fronter](https://pluralkit.xyz/f/azvjwp)
-<h6 align="center">‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
+<p align="center">
+  <img src="https://64.media.tumblr.com/b301f90c8c4c45124e0ebe91c401fea3/ef8d2534ede546e8-fc/s2048x3072/99bc3bf5f266c575c7930366bca08fad797a42a0.pnj" />
+</p>
 <h6 align="center">Slowly converting to having my Github linked instead of my patreon ! 
 <h6 align="center">I have a sys known as the paranormal System, some alters have their own githubs so keep in mind ! :)
 <h6 align="center">ɪ ʜᴀᴠᴇ ᴀᴅᴅ & ᴏꜱᴅᴅ so be mindful if I am a bit slow at interacting, I get heavily distracted.
 <h6 align="center">I can be quite a yapper, but I'm usually very quiet to people I don't know.
 <h6 align="center">I tend to not interact first. Please don't be afraid to talk to me. Don't cover my ponies, friends are perfectly fine doing that.
+<h6 align="center">Please do not ask for suporter bennifits for islands, get supporter yourself. I don't want my whispers to be bombarded with that.
+<h6 align="center">Wont be friends right away as I had issues with people on PT in the past, you can ask to be friends if we have interacted enough !
 <h5 align="center">Please ᴅᴏɴ'ᴛ ᴄᴏᴘʏ My Ponies !
 <h5 align="center">ᴅᴏ ɴᴏᴛ ᴀꜱꜱᴏᴄɪᴀᴛᴇ ᴍᴇ ᴡɪᴛʜ ᴀɴʏ ᴏꜰ ᴍʏ ꜰʀɪᴇɴᴅꜱ ᴀᴄᴛɪᴏɴꜱ ! ᴛʜᴀᴛꜱ ᴛʜᴇɪʀ ᴏᴡɴ ᴀᴄᴛɪᴏɴꜱ ᴀɴᴅ ᴄʜᴏɪᴄᴇꜱ, ɪ ᴅᴏɴ'ᴛ ᴀʟᴡᴀʏꜱ ᴀɢʀᴇᴇ ᴡɪᴛʜ ᴛʜᴇᴍ !
-<h6 align="center">. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁.𖥔 ݁ ˖ ᯓ★
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/3bb8c721bc30d73cfb27a6ac9df802c8/e7c495e21a5c312b-e0/s2048x3072/5f4f2bb0406a3b203434336a9551280b2a8e66b4.pnj" />
+</p>
 
 <p align="center">
   <img src="https://media.tenor.com/KH8xZyQX9KQAAAAM/springtrap-fnaf.gif" />
@@ -34,7 +42,10 @@
 <h6 align="center">➥ If you activly particpate in toxic parts of fandoms.
 
 [Basic DNI Criteria](https://dni-criteria.carrd.co/)
-<h6 align="center">. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁.𖥔 ݁ ˖ ᯓ★
+<p align="center">
+  <img src="https://64.media.tumblr.com/3bb8c721bc30d73cfb27a6ac9df802c8/e7c495e21a5c312b-e0/s2048x3072/5f4f2bb0406a3b203434336a9551280b2a8e66b4.pnj" />
+</p>
+
 
 <p align="center">
   <img src="https://preview.redd.it/r7ujo1d670jf1.jpeg?width=640&crop=smart&auto=webp&s=367381d0ea5b24e6bfbb213e5a307f3af0f35f07" />
@@ -43,7 +54,7 @@
 <h5 align="center">˚✧┆ INT ᶻ 𝗓 𐰁
 <h6 align="center">➠ DBD players !
 
-I'm a [ꜱᴘʀɪɴɢᴛʀᴀᴘ](https://youtu.be/_lsEERSC0Go?si=JDDHno0tGy81PFxY&t=4) and [ʜᴜɴᴛʀᴇꜱꜱ](https://youtu.be/9sXTC-uzjWM?si=lJ5L5ONp5Hy60dgg&t=4) killer main ! While for survivor I'm a [Steve](https://youtube.com/shorts/cfzws6Q8Dn0?si=oztB-5Z9O_G_KJ9X) or Yun-Jin main 
+I'm a [ꜱᴘʀɪɴɢᴛʀᴀᴘ](https://youtu.be/_lsEERSC0Go?si=JDDHno0tGy81PFxY&t=4) and [ʜᴜɴᴛʀᴇꜱꜱ](https://youtu.be/9sXTC-uzjWM?si=lJ5L5ONp5Hy60dgg&t=4) killer main ! While for survivor I'm a Carlos Oliveira main ! 
 
 <h6 align="center">➠ Transformers
 <h6 align="center">➠ Some anime ! JJK, HRI, CSM
@@ -60,11 +71,15 @@ Absolutely love [Shin Godzilla](https://youtu.be/UPuWdr6lyfU?si=BVB3EXdnN38DFza5
 
 <h6 align="center">➠ Resident Evil
 
-<h6 align="center">. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁.𖥔 ݁ ˖ ᯓ★
-
 <p align="center">
-  <img src="https://64.media.tumblr.com/2a3d7bd30ffd80089647432ed3eacdd7/cb437cb6922fe4ed-0d/s540x810/b8053f6e00ace0615cd1cb2e80b8ff32bd66cc15.gif" />
+  <img src="https://64.media.tumblr.com/b301f90c8c4c45124e0ebe91c401fea3/ef8d2534ede546e8-fc/s2048x3072/99bc3bf5f266c575c7930366bca08fad797a42a0.pnj" />
 </p>
+
+<h6 align="center">Carlos I love youuu ! ‎♡‧₊˚
+<p align="center">
+  <img src="https://64.media.tumblr.com/65f071d4d90b12135a8220b87925a901/799984391d18fafe-76/s500x750/a0da82875c3bd19759173dc52181d28395f8bc05.gif" />
+</p>
+
   
 <h6 align="center">This profile is still a wip. Planning to add more soon !
 
