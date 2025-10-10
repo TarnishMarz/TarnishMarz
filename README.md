@@ -54,7 +54,7 @@
 <h5 align="center">˚✧┆ INT ᶻ 𝗓 𐰁
 <h6 align="center">➠ DBD players !
 
-I'm a [ꜱᴘʀɪɴɢᴛʀᴀᴘ](https://youtu.be/_lsEERSC0Go?si=JDDHno0tGy81PFxY&t=4) and [ʜᴜɴᴛʀᴇꜱꜱ](https://youtu.be/9sXTC-uzjWM?si=lJ5L5ONp5Hy60dgg&t=4) killer main ! While for survivor I'm a Carlos Oliveira main ! 
+I'm a [ꜱᴘʀɪɴɢᴛʀᴀᴘ](https://youtu.be/_lsEERSC0Go?si=JDDHno0tGy81PFxY&t=4) and [ʜᴜɴᴛʀᴇꜱꜱ](https://youtu.be/9sXTC-uzjWM?si=lJ5L5ONp5Hy60dgg&t=4) killer main ! While for survivor I'm a Carlos Oliveira or Chris Redfield main ! 
 
 <h6 align="center">➠ Transformers
 <h6 align="center">➠ Some anime ! JJK, HRI, CSM
