@@ -39,7 +39,7 @@
 <h6 align="center">➥ Any jokes about death, sensitive topics or illnesses
 <h6 align="center">➥ Minors Dni (if your 16+ and mature u can int)
 <h6 align="center">➥ Fandoms I find toxic ! This includes HH/HB, Hoyoverse, Sonic, COD and more.
-<h6 align="center">➥ If you activly particpate in toxic parts of fandoms.
+<h6 align="center">➥ If you actively particpate in toxic parts of fandoms.
 
 [Basic DNI Criteria](https://dni-criteria.carrd.co/)
 <p align="center">
