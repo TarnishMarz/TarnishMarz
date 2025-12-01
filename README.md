@@ -1,7 +1,7 @@
-<h5 align="center">"𝘌𝘵𝘩𝘢𝘯. 𝘐 𝘨𝘰𝘵𝘵𝘢 𝘴𝘢𝘺, 𝘐'𝘮 𝘴𝘶𝘳𝘱𝘳𝘪𝘴𝘦𝘥 𝘺𝘰𝘶 𝘮𝘢𝘥𝘦 𝘪𝘵 𝘵𝘩𝘪𝘴 𝘧𝘢𝘳. 𝘐𝘵'𝘥 𝘣𝘦 𝘢 𝘴𝘩𝘢𝘮𝘦 𝘪𝘧 𝘴𝘰𝘮𝘦𝘵𝘩𝘪𝘯𝘨 𝘩𝘢𝘱𝘱𝘦𝘯𝘦𝘥 𝘵𝘰 𝘺𝘰𝘶 𝘯𝘰𝘸."
+<h5 align="center">"𝘐𝘵'𝘴 𝘯𝘰𝘵 𝘮𝘺 𝘧𝘢𝘶𝘭𝘵 𝘺𝘰𝘶 𝘥𝘰𝘯'𝘵 𝘭𝘪𝘬𝘦 𝘨𝘪𝘳𝘭𝘴."
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/22fa1869-0b3b-4803-8562-7a129f0570f0" />
+  <img src="https://64.media.tumblr.com/30bdf15a33ec4f827fec0702b47c7233/2f3202e508f7483a-0a/s540x810/66ad46419aa02649dba0f125d72916141fa0e250.gif" />
 </p>
 
 
