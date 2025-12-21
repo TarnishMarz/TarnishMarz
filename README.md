@@ -9,7 +9,7 @@
 
   [StrawPage](https://tarnishmarz.straw.page) | [Current Fronter](https://pluralkit.xyz/f/azvjwp)
 <p align="center">
-  <img src="https://64.media.tumblr.com/51f587699811ceec1ca3f632416883a5/24a1316a9dd0c2cc-28/s1280x1920/aee7a67e4f6893e5c33fc725915707a26af2b170.pnj" />
+  <img width="700" height="400" src="https://64.media.tumblr.com/51f587699811ceec1ca3f632416883a5/24a1316a9dd0c2cc-28/s1280x1920/aee7a67e4f6893e5c33fc725915707a26af2b170.pnj" />
 </p>
 <h6 align="center">G'day g'day ! Welcome, please do read if your interested ! 
 <h6 align="center">I am a sys fyi known as 'paranormal System', some alters have their own githubs so keep in mind ! :)
@@ -22,11 +22,51 @@
 <h5 align="center">ᴅᴏ ɴᴏᴛ ᴀꜱꜱᴏᴄɪᴀᴛᴇ ᴍᴇ ᴡɪᴛʜ ᴀɴʏ ᴏꜰ ᴍʏ ꜰʀɪᴇɴᴅꜱ ᴀᴄᴛɪᴏɴꜱ ! ᴛʜᴀᴛꜱ ᴛʜᴇɪʀ ᴏᴡɴ ᴀᴄᴛɪᴏɴꜱ ᴀɴᴅ ᴄʜᴏɪᴄᴇꜱ, ɪ ᴅᴏɴ'ᴛ ᴀʟᴡᴀʏꜱ ᴀɢʀᴇᴇ ᴡɪᴛʜ ᴛʜᴇᴍ !
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/4e2c71987489bf95820b5e8c836202c8/b07efe8d98794fb3-7a/s400x600/7bbeb83e730dca2d781672a1cc3e2516f0b94a39.pnj" />
+  <img src="https://64.media.tumblr.com/8d89c4a8fa9c03e5d712b2e6c2ff14c9/141ce20fa5509dc6-d9/s2048x3072/8a398b8be52cbe69198b90afe7c801fd488201d4.pnj" />
+</p>
+
+
+<p align="center">
+  <img width="200" height="200" src="https://www.dvdland.com.au/product_images/v/743/image_1__61886_zoom.png" />
 </p>
 
 <p align="center">
-  <img src="https://media.tenor.com/KH8xZyQX9KQAAAAM/springtrap-fnaf.gif" />
+  <img src="https://64.media.tumblr.com/4e2c71987489bf95820b5e8c836202c8/b07efe8d98794fb3-7a/s400x600/7bbeb83e730dca2d781672a1cc3e2516f0b94a39.pnj" />
+</p>
+
+<h5 align="center">˚✧┆ INT ᶻ 𝗓 𐰁
+<h6 align="center">➠ DBD players !
+
+I'm a [ꜱᴘʀɪɴɢᴛʀᴀᴘ](https://youtu.be/_lsEERSC0Go?si=JDDHno0tGy81PFxY&t=4), [ʜᴜɴᴛʀᴇꜱꜱ](https://youtu.be/9sXTC-uzjWM?si=lJ5L5ONp5Hy60dgg&t=4) and [ᴠᴇᴄɴᴀ](https://youtu.be/SqHYj_MYnhI?si=_3B9av_1n283T7H6) killer main ! While for survivor I'm a Carlos, Chris and Geralt main ! 
+
+<h6 align="center">➠ The Witcher (books, games and show)
+<h6 align="center">➠ Resident Evil
+<h6 align="center">➠ Transformers
+<h6 align="center">➠ Avatar
+<h6 align="center">➠ Stranger Things (Byler my love !)
+<h6 align="center">➠ Five Nights at Freddy's (Only selected few of the fandom)
+
+Fan since first game ! Who remembers [FNAF not scary](https://youtu.be/20musPh8lXI?si=N4AsxwH4PA9xokhG) ?
+<h6 align="center">➠ Jurassic Park/World (And Dinosaur ppl)
+<h6 align="center">➠ Halo RvB <3
+<h6 align="center">➠ Horror movie fans ! 
+<h6 align="center">➠ Godzilla/Kaiju
+
+Absolutely love [Shin Godzilla](https://youtu.be/UPuWdr6lyfU?si=BVB3EXdnN38DFza5) !
+
+<h6 align="center">➠ Some anime ! JJK, HRI, CSM
+<h6 align="center">➠ Much much more !
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/8d89c4a8fa9c03e5d712b2e6c2ff14c9/141ce20fa5509dc6-d9/s2048x3072/8a398b8be52cbe69198b90afe7c801fd488201d4.pnj" />
+</p>
+
+<p align="center">
+  <img width="200" height="200" src="https://www.pngplay.com/wp-content/uploads/12/Witcher-PNG-HD-Quality.png" />
+</p>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/4e2c71987489bf95820b5e8c836202c8/b07efe8d98794fb3-7a/s400x600/7bbeb83e730dca2d781672a1cc3e2516f0b94a39.pnj" />
 </p>
 
 <h5 align="center">˚✧┆ DNI ᶻ 𝗓 𐰁
@@ -42,43 +82,9 @@
 <h6 align="center">➥ If you actively particpate in toxic parts of fandoms.
 
 [Basic DNI Criteria](https://dni-criteria.carrd.co/)
-<p align="center">
-  <img src="https://64.media.tumblr.com/4e2c71987489bf95820b5e8c836202c8/b07efe8d98794fb3-7a/s400x600/7bbeb83e730dca2d781672a1cc3e2516f0b94a39.pnj" />
-</p>
-
 
 <p align="center">
-  <img src="https://preview.redd.it/r7ujo1d670jf1.jpeg?width=640&crop=smart&auto=webp&s=367381d0ea5b24e6bfbb213e5a307f3af0f35f07" />
-</p>
-
-<h5 align="center">˚✧┆ INT ᶻ 𝗓 𐰁
-<h6 align="center">➠ DBD players !
-
-I'm a [ꜱᴘʀɪɴɢᴛʀᴀᴘ](https://youtu.be/_lsEERSC0Go?si=JDDHno0tGy81PFxY&t=4), [ʜᴜɴᴛʀᴇꜱꜱ](https://youtu.be/9sXTC-uzjWM?si=lJ5L5ONp5Hy60dgg&t=4) and [ᴠᴇᴄɴᴀ](https://youtu.be/SqHYj_MYnhI?si=_3B9av_1n283T7H6) killer main ! While for survivor I'm a Carlos, Chris and Geralt main ! 
-
-<h6 align="center">➠ Transformers
-<h6 align="center">➠ Some anime ! JJK, HRI, CSM
-<h6 align="center">➠ Five Nights at Freddy's (Only selected few of the fandom)
-
-Fan since first game ! Who remembers [FNAF not scary](https://youtu.be/20musPh8lXI?si=N4AsxwH4PA9xokhG) ?
-<h6 align="center">➠ Jurassic Park/World (And Dinosaur ppl)
-<h6 align="center">➠ Stranger Things !
-<h6 align="center">➠ The Witcher (books, games and show)
-<h6 align="center">➠ Halo RvB <3
-<h6 align="center">➠ Horror movie fans ! 
-<h6 align="center">➠ Godzilla/Kaiju
-
-Absolutely love [Shin Godzilla](https://youtu.be/UPuWdr6lyfU?si=BVB3EXdnN38DFza5) !
-
-<h6 align="center">➠ Resident Evil
-
-<p align="center">
-  <img src="https://64.media.tumblr.com/ff0f5a7fcbebcb0e6a013cf38bc2f6b8/141ce20fa5509dc6-5a/s1280x1920/0a092d4b03dd42896f0bab721bc3050cd5ec3e56.pnj" />
-</p>
-
-<h6 align="center">Carlos I love youuu ! ‎♡‧₊˚
-<p align="center">
-  <img src="https://64.media.tumblr.com/65f071d4d90b12135a8220b87925a901/799984391d18fafe-76/s500x750/a0da82875c3bd19759173dc52181d28395f8bc05.gif" />
+  <img src="https://64.media.tumblr.com/35b0fdc2cf3d84d6e56b8f780fef2793/c93542c76171be92-a1/s1280x1920/0784454a279142cd909a4190b837abdfef4bbcbc.pnj" />
 </p>
 
   
