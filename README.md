@@ -11,8 +11,8 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/b301f90c8c4c45124e0ebe91c401fea3/ef8d2534ede546e8-fc/s2048x3072/99bc3bf5f266c575c7930366bca08fad797a42a0.pnj" />
 </p>
-<h6 align="center">Slowly converting to having my Github linked instead of my patreon ! 
-<h6 align="center">I have a sys known as the paranormal System, some alters have their own githubs so keep in mind ! :)
+<h6 align="center">G'day g'day ! Welcome, please do read if your interested ! 
+<h6 align="center">I am a sys fyi known as 'paranormal System', some alters have their own githubs so keep in mind ! :)
 <h6 align="center">ɪ ʜᴀᴠᴇ ᴀᴅᴅ & ᴏꜱᴅᴅ so be mindful if I am a bit slow at interacting, I get heavily distracted.
 <h6 align="center">I can be quite a yapper, but I'm usually very quiet to people I don't know.
 <h6 align="center">I tend to not interact first. Please don't be afraid to talk to me. Don't cover my ponies, friends are perfectly fine doing that.
@@ -54,7 +54,7 @@
 <h5 align="center">˚✧┆ INT ᶻ 𝗓 𐰁
 <h6 align="center">➠ DBD players !
 
-I'm a [ꜱᴘʀɪɴɢᴛʀᴀᴘ](https://youtu.be/_lsEERSC0Go?si=JDDHno0tGy81PFxY&t=4), [ʜᴜɴᴛʀᴇꜱꜱ](https://youtu.be/9sXTC-uzjWM?si=lJ5L5ONp5Hy60dgg&t=4) and [ᴠᴇᴄɴᴀ](https://youtu.be/SqHYj_MYnhI?si=_3B9av_1n283T7H6) killer main ! While for survivor I'm a Carlos Oliveira or Chris Redfield main ! 
+I'm a [ꜱᴘʀɪɴɢᴛʀᴀᴘ](https://youtu.be/_lsEERSC0Go?si=JDDHno0tGy81PFxY&t=4), [ʜᴜɴᴛʀᴇꜱꜱ](https://youtu.be/9sXTC-uzjWM?si=lJ5L5ONp5Hy60dgg&t=4) and [ᴠᴇᴄɴᴀ](https://youtu.be/SqHYj_MYnhI?si=_3B9av_1n283T7H6) killer main ! While for survivor I'm a Carlos, Chris and Geralt main ! 
 
 <h6 align="center">➠ Transformers
 <h6 align="center">➠ Some anime ! JJK, HRI, CSM
@@ -63,6 +63,7 @@ I'm a [ꜱᴘʀɪɴɢᴛʀᴀᴘ](https://youtu.be/_lsEERSC0Go?si=JDDHno0tGy81PF
 Fan since first game ! Who remembers [FNAF not scary](https://youtu.be/20musPh8lXI?si=N4AsxwH4PA9xokhG) ?
 <h6 align="center">➠ Jurassic Park/World (And Dinosaur ppl)
 <h6 align="center">➠ Stranger Things !
+<h6 align="center">➠ The Witcher (books, games and show)
 <h6 align="center">➠ Halo RvB <3
 <h6 align="center">➠ Horror movie fans ! 
 <h6 align="center">➠ Godzilla/Kaiju
