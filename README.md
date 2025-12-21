@@ -9,7 +9,7 @@
 
   [StrawPage](https://tarnishmarz.straw.page) | [Current Fronter](https://pluralkit.xyz/f/azvjwp)
 <p align="center">
-  <img src="https://64.media.tumblr.com/b301f90c8c4c45124e0ebe91c401fea3/ef8d2534ede546e8-fc/s2048x3072/99bc3bf5f266c575c7930366bca08fad797a42a0.pnj" />
+  <img src="https://64.media.tumblr.com/51f587699811ceec1ca3f632416883a5/24a1316a9dd0c2cc-28/s1280x1920/aee7a67e4f6893e5c33fc725915707a26af2b170.pnj" />
 </p>
 <h6 align="center">G'day g'day ! Welcome, please do read if your interested ! 
 <h6 align="center">I am a sys fyi known as 'paranormal System', some alters have their own githubs so keep in mind ! :)
@@ -22,7 +22,7 @@
 <h5 align="center">ᴅᴏ ɴᴏᴛ ᴀꜱꜱᴏᴄɪᴀᴛᴇ ᴍᴇ ᴡɪᴛʜ ᴀɴʏ ᴏꜰ ᴍʏ ꜰʀɪᴇɴᴅꜱ ᴀᴄᴛɪᴏɴꜱ ! ᴛʜᴀᴛꜱ ᴛʜᴇɪʀ ᴏᴡɴ ᴀᴄᴛɪᴏɴꜱ ᴀɴᴅ ᴄʜᴏɪᴄᴇꜱ, ɪ ᴅᴏɴ'ᴛ ᴀʟᴡᴀʏꜱ ᴀɢʀᴇᴇ ᴡɪᴛʜ ᴛʜᴇᴍ !
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/3bb8c721bc30d73cfb27a6ac9df802c8/e7c495e21a5c312b-e0/s2048x3072/5f4f2bb0406a3b203434336a9551280b2a8e66b4.pnj" />
+  <img src="https://64.media.tumblr.com/4e2c71987489bf95820b5e8c836202c8/b07efe8d98794fb3-7a/s400x600/7bbeb83e730dca2d781672a1cc3e2516f0b94a39.pnj" />
 </p>
 
 <p align="center">
@@ -43,7 +43,7 @@
 
 [Basic DNI Criteria](https://dni-criteria.carrd.co/)
 <p align="center">
-  <img src="https://64.media.tumblr.com/3bb8c721bc30d73cfb27a6ac9df802c8/e7c495e21a5c312b-e0/s2048x3072/5f4f2bb0406a3b203434336a9551280b2a8e66b4.pnj" />
+  <img src="https://64.media.tumblr.com/4e2c71987489bf95820b5e8c836202c8/b07efe8d98794fb3-7a/s400x600/7bbeb83e730dca2d781672a1cc3e2516f0b94a39.pnj" />
 </p>
 
 
@@ -73,7 +73,7 @@ Absolutely love [Shin Godzilla](https://youtu.be/UPuWdr6lyfU?si=BVB3EXdnN38DFza5
 <h6 align="center">➠ Resident Evil
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/b301f90c8c4c45124e0ebe91c401fea3/ef8d2534ede546e8-fc/s2048x3072/99bc3bf5f266c575c7930366bca08fad797a42a0.pnj" />
+  <img src="https://64.media.tumblr.com/ff0f5a7fcbebcb0e6a013cf38bc2f6b8/141ce20fa5509dc6-5a/s1280x1920/0a092d4b03dd42896f0bab721bc3050cd5ec3e56.pnj" />
 </p>
 
 <h6 align="center">Carlos I love youuu ! ‎♡‧₊˚
