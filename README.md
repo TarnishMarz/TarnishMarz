@@ -9,7 +9,7 @@
 
   [StrawPage](https://tarnishmarz.straw.page) | [Current Fronter](https://pluralkit.xyz/f/azvjwp)
 <p align="center">
-  <img width="700" height="400" src="https://64.media.tumblr.com/51f587699811ceec1ca3f632416883a5/24a1316a9dd0c2cc-28/s1280x1920/aee7a67e4f6893e5c33fc725915707a26af2b170.pnj" />
+  <img width="800" height="500" src="https://64.media.tumblr.com/7c34729244ad4bcfe216f22159985293/43e796fd77866d74-ac/s2048x3072/3a7e927a072739afcc2512c4cec84cdedffae364.pnj" />
 </p>
 <h6 align="center">G'day g'day ! Welcome, please do read if your interested ! 
 <h6 align="center">I am a sys fyi known as 'paranormal System', some alters have their own githubs so keep in mind ! :)
