@@ -14,12 +14,13 @@
 <h6 align="center">G'day g'day ! Welcome, please do read if your interested ! 
 <h6 align="center">I am a sys fyi known as 'paranormal System', some alters have their own githubs so keep in mind ! :)
 <h6 align="center">ɪ ʜᴀᴠᴇ ᴀᴅᴅ & ᴏꜱᴅᴅ so be mindful if I am a bit slow at interacting, I get heavily distracted.
-<h6 align="center">I can be quite a yapper, but I'm usually very quiet to people I don't know.
-<h6 align="center">I tend to not interact first. Please don't be afraid to talk to me. Don't cover my ponies, friends are perfectly fine doing that.
+<h6 align="center">I can be quite a yapper, but I'm usually very quiet to people I don't know. I tend to not interact first. Please don't be afraid to talk to me, you can yap to me about interests we have alike ! I am more than happy to chat freely. Don't cover my ponies, friends are perfectly fine doing that.
 <h6 align="center">Please do not ask for suporter bennifits for islands, get supporter yourself. I don't want my whispers to be bombarded with that.
 <h6 align="center">Wont be friends right away as I had issues with people on PT in the past, you can ask to be friends if we have interacted enough !
 <h5 align="center">Please ᴅᴏɴ'ᴛ ᴄᴏᴘʏ My Ponies !
 <h5 align="center">ᴅᴏ ɴᴏᴛ ᴀꜱꜱᴏᴄɪᴀᴛᴇ ᴍᴇ ᴡɪᴛʜ ᴀɴʏ ᴏꜰ ᴍʏ ꜰʀɪᴇɴᴅꜱ ᴀᴄᴛɪᴏɴꜱ ! ᴛʜᴀᴛꜱ ᴛʜᴇɪʀ ᴏᴡɴ ᴀᴄᴛɪᴏɴꜱ ᴀɴᴅ ᴄʜᴏɪᴄᴇꜱ, ɪ ᴅᴏɴ'ᴛ ᴀʟᴡᴀʏꜱ ᴀɢʀᴇᴇ ᴡɪᴛʜ ᴛʜᴇᴍ !
+<h6 align="center">ɪ ʜɪᴅᴇ/ʙʟᴏᴄᴋ ꜰʀᴇᴇʟʏ ꜰᴏʀ ᴍʏ ᴏᴡɴ ᴏɴʟɪɴᴇ ꜱᴀꜰᴇᴛʏ ᴀɴᴅ ᴍᴇɴᴛᴀʟ ʜᴇᴀʟᴛʜ. ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ᴀʀᴇ ᴘᴇʀᴍ ʙʟᴏᴄᴋᴇᴅ, ɪ ʜᴀᴠᴇ ᴍʏ ʀᴇᴀꜱᴏɴꜱ ᴀɴᴅ ᴅᴏ ɴᴏᴛ ᴡɪꜱʜ ꜰᴏʀ ʏᴏᴜʀ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ᴀꜱꜱᴇꜱ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴍᴇ. ɪꜰ ɪ ᴡʀᴏɴɢʟʏ ᴘᴇʀᴍ ʙʟᴏᴄᴋᴇᴅ ʏᴏᴜ, ᴡʜɪꜱᴘᴇʀ ᴏɴᴇ ᴏꜰ ᴍʏ ꜰʀɪᴇɴᴅꜱ, ꜱᴇᴇ ɪꜰ ɪ ᴡᴀꜱ ᴡʀᴏɴɢ !
+
 
 <p align="center">
   <img src="https://64.media.tumblr.com/8d89c4a8fa9c03e5d712b2e6c2ff14c9/141ce20fa5509dc6-d9/s2048x3072/8a398b8be52cbe69198b90afe7c801fd488201d4.pnj" />
@@ -48,6 +49,7 @@ I'm a [ꜱᴘʀɪɴɢᴛʀᴀᴘ](https://youtu.be/_lsEERSC0Go?si=JDDHno0tGy81PF
 
 Fan since first game ! Who remembers [FNAF not scary](https://youtu.be/20musPh8lXI?si=N4AsxwH4PA9xokhG) ?
 <h6 align="center">➠ Jurassic Park/World (And Dinosaur ppl)
+<h6 align="center">➠ LOTR/The Hobbit
 <h6 align="center">➠ Halo RvB <3
 <h6 align="center">➠ Horror movie fans ! 
 <h6 align="center">➠ Godzilla/Kaiju
