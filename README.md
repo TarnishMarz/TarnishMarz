@@ -1,7 +1,6 @@
-<h5 align="center">"𝘐𝘵'𝘴 𝘯𝘰𝘵 𝘮𝘺 𝘧𝘢𝘶𝘭𝘵 𝘺𝘰𝘶 𝘥𝘰𝘯'𝘵 𝘭𝘪𝘬𝘦 𝘨𝘪𝘳𝘭𝘴."
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/30bdf15a33ec4f827fec0702b47c7233/2f3202e508f7483a-0a/s540x810/66ad46419aa02649dba0f125d72916141fa0e250.gif" />
+  <img src="https://64.media.tumblr.com/9167c74358c56d0dd6106122b0ec42b1/937e929bb8607bcf-a0/s640x960/cfcd70d33a8430a85ccb52dccc7eb7b83f78c27b.gif" />
 </p>
 
 
