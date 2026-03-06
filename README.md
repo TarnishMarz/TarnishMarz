@@ -4,7 +4,7 @@
 </p>
 
 
-<h5 align="center">Hallo I am Marz or Tar !  
+<h5 align="center">Hallo I am Marz or Finn !  
 
   [StrawPage](https://tarnishmarz.straw.page) | [Current Fronter](https://pluralkit.xyz/f/azvjwp)
 <p align="center">
