@@ -6,7 +6,7 @@
 
 <h5 align="center">Hallo I am Marz or Finn !  
 
-  [StrawPage](https://tarnishmarz.straw.page) | [Current Fronter](https://pluralkit.xyz/f/azvjwp) | [ATA](https://tarnishmarz.atabook.org/)
+  [StrawPage](https://tarnishmarz.straw.page) | [Current Fronter](https://pluralkit.xyz/f/azvjwp) | [AtaBook](https://tarnishmarz.atabook.org/)
 <p align="center">
   <img width="800" height="500" src="https://64.media.tumblr.com/7c34729244ad4bcfe216f22159985293/43e796fd77866d74-ac/s2048x3072/3a7e927a072739afcc2512c4cec84cdedffae364.pnj" />
 </p>
