@@ -8,7 +8,10 @@
 
   [StrawPage](https://tarnishmarz.straw.page) | [Current Fronter](https://pluralkit.xyz/f/azvjwp) | [AtaBook](https://tarnishmarz.atabook.org/)
 <p align="center">
-  <img width="800" height="500" src="https://64.media.tumblr.com/7c34729244ad4bcfe216f22159985293/43e796fd77866d74-ac/s2048x3072/3a7e927a072739afcc2512c4cec84cdedffae364.pnj" />
+  <img width="800" height="500" src="https://64.media.tumblr.com/f2faaa16b691ecbb0e128130d1ec624f/313453035e66da41-54/s640x960/08a3a37cd799c9b5372c839885941cf36653656f.gif" />
+</p>
+<p align="center">
+  <img width="800" height="500" src="https://64.media.tumblr.com/4465b714934f479a286c1f0df0db0230/be3a53a5b990a396-ea/s2048x3072/4d1bca9074a9abd3f1f4b428d907617213c32d24.pnj" />
 </p>
 <h6 align="center">G'day g'day ! Welcome, please do read if your interested ! 
 <h6 align="center">I am a sys fyi known as 'paranormal System', some alters have their own githubs so keep in mind ! :)
@@ -27,11 +30,11 @@
 
 
 <p align="center">
-  <img width="200" height="200" src="https://www.dvdland.com.au/product_images/v/743/image_1__61886_zoom.png" />
+  <img width="150" height="200" src="https://64.media.tumblr.com/6bd239e5064a0bc80bf9bb7ac705b9e3/62aa40131ac50ad5-db/s640x960/dbf3e0df833406d5f42203637d8ed36f5e690bec.pnj" />
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/4e2c71987489bf95820b5e8c836202c8/b07efe8d98794fb3-7a/s400x600/7bbeb83e730dca2d781672a1cc3e2516f0b94a39.pnj" />
+  <img width="600" height="300" src="https://64.media.tumblr.com/eb6683a65ed0d359dda8b2aefa491581/aaccb3271efb5e03-cb/s2048x3072/ebe1b37a8a25859af790e713bbbc586ab49919d7.pnj" />
 </p>
 
 <h5 align="center">˚✧┆ INT ᶻ 𝗓 𐰁
@@ -63,11 +66,11 @@ Absolutely love [Shin Godzilla](https://youtu.be/UPuWdr6lyfU?si=BVB3EXdnN38DFza5
 </p>
 
 <p align="center">
-  <img width="200" height="200" src="https://www.pngplay.com/wp-content/uploads/12/Witcher-PNG-HD-Quality.png" />
+  <img width="200" height="200" src="https://64.media.tumblr.com/c2913dd95267f58d98f15bf572eccd80/62aa40131ac50ad5-1d/s1280x1920/d5105917f2652b6d731e1f2f8bc6de59f3859d42.pnj" />
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/4e2c71987489bf95820b5e8c836202c8/b07efe8d98794fb3-7a/s400x600/7bbeb83e730dca2d781672a1cc3e2516f0b94a39.pnj" />
+    <img width="600" height="300" src="https://64.media.tumblr.com/eb6683a65ed0d359dda8b2aefa491581/aaccb3271efb5e03-cb/s2048x3072/ebe1b37a8a25859af790e713bbbc586ab49919d7.pnj" />
 </p>
 
 <h5 align="center">˚✧┆ DNI ᶻ 𝗓 𐰁
@@ -85,7 +88,7 @@ Absolutely love [Shin Godzilla](https://youtu.be/UPuWdr6lyfU?si=BVB3EXdnN38DFza5
 [Basic DNI Criteria](https://dni-criteria.carrd.co/)
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/35b0fdc2cf3d84d6e56b8f780fef2793/c93542c76171be92-a1/s1280x1920/0784454a279142cd909a4190b837abdfef4bbcbc.pnj" />
+  <img width="800" height="500" src="https://64.media.tumblr.com/8ea88ad32a81c1e6178564984111cf3b/6b6cef5fada6f113-8c/s2048x3072/b7476e4615fd57bad619765ed661e0b7f3ef2080.pnj" />
 </p>
 
   
