@@ -88,7 +88,7 @@ Absolutely love [Shin Godzilla](https://youtu.be/UPuWdr6lyfU?si=BVB3EXdnN38DFza5
 [Basic DNI Criteria](https://dni-criteria.carrd.co/)
 
 <p align="center">
-  <img width="800" height="500" src="https://64.media.tumblr.com/8ea88ad32a81c1e6178564984111cf3b/6b6cef5fada6f113-8c/s2048x3072/b7476e4615fd57bad619765ed661e0b7f3ef2080.pnj" />
+  <img src="https://64.media.tumblr.com/8ea88ad32a81c1e6178564984111cf3b/6b6cef5fada6f113-8c/s2048x3072/b7476e4615fd57bad619765ed661e0b7f3ef2080.pnj" />
 </p>
 
   
