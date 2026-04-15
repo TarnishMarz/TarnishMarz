@@ -4,14 +4,14 @@
 </p>
 
 
-<h5 align="center">Hallo I am Marz or Finn !  
+<h5 align="center">Hallo I am Marz or Finn ! 
 
   [StrawPage](https://tarnishmarz.straw.page) | [Current Fronter](https://pluralkit.xyz/f/azvjwp) | [AtaBook](https://tarnishmarz.atabook.org/)
 <p align="center">
-  <img width="800" height="500" src="https://64.media.tumblr.com/f2faaa16b691ecbb0e128130d1ec624f/313453035e66da41-54/s640x960/08a3a37cd799c9b5372c839885941cf36653656f.gif" />
+  <img  src="https://64.media.tumblr.com/f2faaa16b691ecbb0e128130d1ec624f/313453035e66da41-54/s640x960/08a3a37cd799c9b5372c839885941cf36653656f.gif" />
 </p>
 <p align="center">
-  <img width="800" height="500" src="https://64.media.tumblr.com/4465b714934f479a286c1f0df0db0230/be3a53a5b990a396-ea/s2048x3072/4d1bca9074a9abd3f1f4b428d907617213c32d24.pnj" />
+  <img src="https://64.media.tumblr.com/4465b714934f479a286c1f0df0db0230/be3a53a5b990a396-ea/s2048x3072/4d1bca9074a9abd3f1f4b428d907617213c32d24.pnj" />
 </p>
 <h6 align="center">G'day g'day ! Welcome, please do read if your interested ! 
 <h6 align="center">I am a sys fyi known as 'paranormal System', some alters have their own githubs so keep in mind ! :)
@@ -34,7 +34,7 @@
 </p>
 
 <p align="center">
-  <img width="600" height="300" src="https://64.media.tumblr.com/eb6683a65ed0d359dda8b2aefa491581/aaccb3271efb5e03-cb/s2048x3072/ebe1b37a8a25859af790e713bbbc586ab49919d7.pnj" />
+  <img src="https://64.media.tumblr.com/eb6683a65ed0d359dda8b2aefa491581/aaccb3271efb5e03-cb/s2048x3072/ebe1b37a8a25859af790e713bbbc586ab49919d7.pnj" />
 </p>
 
 <h5 align="center">˚✧┆ INT ᶻ 𝗓 𐰁
@@ -70,7 +70,7 @@ Absolutely love [Shin Godzilla](https://youtu.be/UPuWdr6lyfU?si=BVB3EXdnN38DFza5
 </p>
 
 <p align="center">
-    <img width="600" height="300" src="https://64.media.tumblr.com/eb6683a65ed0d359dda8b2aefa491581/aaccb3271efb5e03-cb/s2048x3072/ebe1b37a8a25859af790e713bbbc586ab49919d7.pnj" />
+    <img src="https://64.media.tumblr.com/eb6683a65ed0d359dda8b2aefa491581/aaccb3271efb5e03-cb/s2048x3072/ebe1b37a8a25859af790e713bbbc586ab49919d7.pnj" />
 </p>
 
 <h5 align="center">˚✧┆ DNI ᶻ 𝗓 𐰁
