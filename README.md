@@ -30,7 +30,8 @@
 
 
 <p align="center">
-  <img width="150" height="200" src="https://64.media.tumblr.com/6bd239e5064a0bc80bf9bb7ac705b9e3/62aa40131ac50ad5-db/s640x960/dbf3e0df833406d5f42203637d8ed36f5e690bec.pnj" />
+  <img alt="Untitled153_20260506021149" src="https://github.com/user-attachments/assets/4816eec9-f608-47ae-ac40-545ba38f54a1" />
+
 </p>
 
 <p align="center">
@@ -62,11 +63,8 @@ Absolutely love [Shin Godzilla](https://youtu.be/UPuWdr6lyfU?si=BVB3EXdnN38DFza5
 <h6 align="center">➠ Much much more !
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/8d89c4a8fa9c03e5d712b2e6c2ff14c9/141ce20fa5509dc6-d9/s2048x3072/8a398b8be52cbe69198b90afe7c801fd488201d4.pnj" />
-</p>
+   <img alt="Untitled154_20260506230034" src="https://github.com/user-attachments/assets/c770fdfd-8bff-4b26-bd84-f5df720e2d19" />
 
-<p align="center">
-  <img alt="Untitled153_20260506021149" src="https://github.com/user-attachments/assets/2bc7a609-9dd4-4033-b4e0-c3210f428f9d" />
 </p>
 
 <p align="center">
