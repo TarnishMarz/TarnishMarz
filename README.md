@@ -30,8 +30,7 @@
 
 
 <p align="center">
-  <img alt="Untitled153_20260506021149" src="https://github.com/user-attachments/assets/4816eec9-f608-47ae-ac40-545ba38f54a1" />
-
+ <img alt="Untitled154_20260506230906" src="https://github.com/user-attachments/assets/dc963d59-869b-40e8-a044-da449dbb4232" />
 </p>
 
 <p align="center">
